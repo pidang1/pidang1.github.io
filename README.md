@@ -1,1 +1,0 @@
-# pidang1.github.io
